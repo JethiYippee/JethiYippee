@@ -3,6 +3,6 @@ I am Jethro, or mostly called Jethi
 
 I like apples 🍎
 
-Go check this out ig,
+Mostly codes in Python 🐍, and uses AI alot.
 
-[https://jethiyippee.github.io/](https://jethiyippee.github.io/)
+Donate if you want: [Ko-Fi](https://ko-fi.com/jethiyippee)
